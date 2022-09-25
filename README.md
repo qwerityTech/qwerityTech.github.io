@@ -1,0 +1,1 @@
+# qwerityTech.github.io
